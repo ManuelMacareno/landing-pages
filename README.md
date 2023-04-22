@@ -1,1 +1,2 @@
 # landing-pages
+maso menos quedó, yo se que hay detalles que tengo que corregir pero no tengo ganas ahora. despues seguramente los corregire, quiero seguir avanzando en TOP que es lo mejor que hay amigo.
